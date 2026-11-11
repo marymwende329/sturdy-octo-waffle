@@ -1,1 +1,1 @@
-# sturdy-octo-waffle
+Vous aussi vous avez déjà hésité devant dix mille papiers pour des cartons d'annonce ? Moi oui, jusqu'à ce que je lise ce comparatif : https://prooffeed.com/fr/marques-de-papier-pour-faire-part Ce que j'en retiens : G.Lalo, maison parisienne née en 1919, a un vélin pur coton et des cartes à bords frangés très médiévaux, un vrai charme pour un mariage. Pollen est plus coloré et pratique, il passe bien en jet d'encre. Rives mise sur le filigrane. Mon coup de coeur reste G.Lalo.# sturdy-octo-waffle
